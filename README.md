@@ -2,7 +2,7 @@
 - 👀 I’m interested in **Anime**, **Gaming** (especially **Minecraft**), **drawing**, etc.
 - 🌱 I’m currently learning Code: HTML, JavaScript, CSS, And PYTHON.
 - 💞️ I’m looking to collaborate on Honestly **nothing**, I'm just here.
-- 📫 How to reach me, no...
+- 📫 How to reach me, My discord: kaitheguy7878
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I'm **Cool**.
 
